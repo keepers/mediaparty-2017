@@ -1,1 +1,0 @@
-# mediaparty-2017
